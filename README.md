@@ -1,1 +1,1 @@
-# Prophecies
+# Propheties
